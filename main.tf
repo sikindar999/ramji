@@ -2,8 +2,3 @@ haisfsfjsf
 sf
 s
 sgsg
-gdgdgdgdg
-dg
-g
-dgd
-g
